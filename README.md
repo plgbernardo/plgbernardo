@@ -1,3 +1,3 @@
 :D
 
-![lucky-star-anime](https://user-images.githubusercontent.com/57974167/160298190-514dd9c8-4a2c-4bce-a590-58c725293e83.gif)
+![eat-eats](https://user-images.githubusercontent.com/57974167/160298439-09ae4084-d6f3-4afd-96ae-dcccfc689bc4.gif)
